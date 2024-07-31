@@ -8,4 +8,5 @@ Meu nome é Gabriela Candido
 Você pode entrar em contato comigo 📫
 0000114946432xsp@al.educacao.sp.gov.br
 
-![](![image](https://tenor.com/pt-BR/view/spidyclown-clownspidy-spidyclowndance-spidy-clown-dance-spidy-clown-gif-16433224723993696252)
+![](![Uploading image.png…]()
+)
