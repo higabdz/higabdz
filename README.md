@@ -1,5 +1,3 @@
-![](https://j.gifs.com/83A5lj.gif)
-
 Boas vindas ao meu perfil 
 Meu nome é Gabriela Candido
 
@@ -9,5 +7,7 @@ Meu nome é Gabriela Candido
 
 Você pode entrar em contato comigo 📫
 0000114946432xsp@al.educacao.sp.gov.br
+
+![](https://j.gifs.com/83A5lj.gif)
 
 
