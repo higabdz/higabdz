@@ -1,5 +1,6 @@
 ![](https://j.gifs.com/83A5lj.gif)
- Boas vindas ao meu perfil 
+
+Boas vindas ao meu perfil 
 Meu nome é Gabriela Candido
 
 . Estou estudando na Alura
